@@ -1,0 +1,2 @@
+# simplegy
+Jangan 
